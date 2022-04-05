@@ -1,0 +1,1 @@
+# Aluthge-Duggal-and-Mean-Transformation
